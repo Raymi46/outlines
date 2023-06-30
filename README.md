@@ -1,0 +1,2 @@
+# outlines
+vague perusals
